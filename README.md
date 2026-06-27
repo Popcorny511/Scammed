@@ -1,0 +1,2 @@
+# Scammed
+get scammed
